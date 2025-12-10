@@ -9,4 +9,3 @@
  Data de Lançamento: Não está determinada por enquanto.
  Componentes do Grupo Shadow Studio: Tatsumi
  Feito Por 1 Brasileiro.
- N
